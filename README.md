@@ -1,2 +1,2 @@
 # sixmil
-i am learning please be patient
+phuKed up $ociety  8====D
